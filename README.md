@@ -1,5 +1,5 @@
 
-- 👀 I’m interested in life
+- 👀 Hi, i’m interested in life
 
 
 <!---
